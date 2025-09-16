@@ -15,3 +15,6 @@
 4. Add a tablespoon of instant coffee to the dry ingredients for a hint of mocha flavour.
 5. Mix in a handful of chocolate chunks for extra indulgence.
 6. Line the bottom of the baking pan with parchment paper for easy cake removal.
+
+## Addition Directions by Avery:
+7. Sprinkle the entire bottle of lajiao powder
